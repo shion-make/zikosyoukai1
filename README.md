@@ -1,1 +1,0 @@
-# zikosyoukai1
